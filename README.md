@@ -1,6 +1,6 @@
 # mercadoTech
 practica evalucion final
-Elida Patricia sanchez Tavera 
+Elida Patricia sanchez Tavera :wink: 
 Camila Fernanda Rosero Pantoja
 Heber Marin Leon 
 
